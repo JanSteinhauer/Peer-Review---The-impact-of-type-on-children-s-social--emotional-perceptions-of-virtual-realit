@@ -1,0 +1,2 @@
+# Peer-Review---The-impact-of-type-on-children-s-social--emotional-perceptions-of-virtual-realit
+This peer review evaluates a paper on how different virtual reality character types affect children's social-emotional perceptions, highlighting that character movement and design play a key role in emotional engagement, with animal characters often eliciting more positive responses compared to human or familiar fictional figures.
